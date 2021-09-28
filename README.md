@@ -1,5 +1,5 @@
 ## HELLO THERE
-y you acting sus
+just sent an angry email to mancubius, feeling good
 
 I enjoy making resource packs, and mods.<br>
 Scratch: https://scratch.mit.edu/users/zahmbie1/ <br>
